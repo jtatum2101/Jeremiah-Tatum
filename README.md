@@ -1,4 +1,4 @@
-# The Protfolio of Jeremiah Joseph Tatum
+# The Portfolio of Jeremiah Joseph Tatum
 
 ## Description:
 
